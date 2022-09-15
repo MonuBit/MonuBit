@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MonuBit
-- 👀 I’m interested in 
-![image](https://user-images.githubusercontent.com/75883061/190463181-3a873fa9-019c-44a1-9c81-7fe659bd9e6f.png)
+- Connect With me on 
+https://www.linkedin.com/in/monu-kumar-singh-67363216b/
 
 
 
