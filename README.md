@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MonuBit
 - Connect With me on 
-[![Linkdeln](![image](https://user-images.githubusercontent.com/75883061/190464943-d4db00e9-d4aa-498b-a978-23e08c057875.png))](https://www.linkedin.com/in/monu-kumar-singh-67363216b/)
+[![Linkdeln](![image](![image](https://user-images.githubusercontent.com/75883061/190465483-56a5f461-0dfb-4eac-95cb-6e69a25d7912.png)))](https://www.linkedin.com/in/monu-kumar-singh-67363216b/)
 
 
 
